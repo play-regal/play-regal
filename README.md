@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/instanfr">CLIQUEZ ET RECEVEZ LE BONUS</a>
+
 # PlayRegal : le casino en ligne dédié aux joueurs français
 
 Play Regal présente comme une plateforme de casino en ligne premium, où l'accent est mis sur la fourniture d'une expérience utilisateur de qualité supérieure, assortie d'un vaste catalogue de jeux. Au sein de Play Regal, les utilisateurs peuvent s'attendre à un environnement sécurisé et réglementé, caractérisé par une interface utilisateur intuitive et un support client réactif.
